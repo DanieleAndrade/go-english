@@ -36,6 +36,12 @@
 [Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
 
 
+## Podcasts
+ Título | 
+------- | 
+[6 Minute English - BBC](https://www.bbc.co.uk/programmes/p02pc9tn/episodes/downloads) | 
+
+
 ## Grupos de Estudo
  Título | 
 ------- | 
