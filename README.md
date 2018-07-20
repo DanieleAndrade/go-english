@@ -7,9 +7,9 @@
 [Gramática de Uso da Língua Inglesa](https://www.amazon.com.br/Gram%C3%A1tica-L%C3%ADngua-Inglesa-Denilso-Lima/dp/8521628390) | Livro | X | |
 
 ## Aplicativos
- Título | Pago | Grátis
-------- | ------ | ------
-[ABA English](https://play.google.com/store/apps/details?id=com.abaenglish.videoclass) | X | |
+ Título | Pago | Grátis | Play Store | App Store
+------- | ------ | ------ | ------  | ------  
+[ABA English] | X |  | [Ir para Play Store](https://play.google.com/store/apps/details?id=com.abaenglish.videoclass) | |
 
 
 ## Sites
