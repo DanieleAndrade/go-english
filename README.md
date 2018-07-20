@@ -16,15 +16,12 @@
  Título | 
 ------- | 
 [Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
+[English Experts](https://www.englishexperts.com.br/) | 
+[Tecla Sap](http://www.teclasap.com.br/) | 
+[Italki](https://www.italki.com/home) | 
 
 
-## Vídeos
- Título | 
-------- | 
-[Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
-
-
-## Cursos
+## Canais no YouTube
  Título | 
 ------- | 
 [Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
@@ -33,7 +30,7 @@
 ## Tradutores
  Título | 
 ------- | 
-[Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
+[]() | 
 
 
 ## Podcasts
@@ -45,7 +42,7 @@
 ## Grupos de Estudo
  Título | 
 ------- | 
-[Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
+[]() | 
 
 
 ### Como contribuir
