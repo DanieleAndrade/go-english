@@ -19,12 +19,22 @@
 [English Experts](https://www.englishexperts.com.br/) | 
 [Tecla Sap](http://www.teclasap.com.br/) | 
 [Italki](https://www.italki.com/home) | 
+[English Brazil](https://www.englishinbrazil.com.br/) |
 
 
 ## Canais no YouTube
  Título | 
 ------- | 
-[Inglês na Ponta da Língua](https://www.inglesnapontadalingua.com.br/) | 
+[Inglês na Ponta da Língua](https://www.youtube.com/channel/UCe5YeBiQwkxEMYhvHwfuinw) | 
+[English Brazil by Carina Fragozo](https://www.youtube.com/carinafragozo) |
+[Inglês Winner](https://www.youtube.com/user/eslwinner) |
+[Mairo Vergara](https://www.youtube.com/user/MairoVergara) |
+[Tia do Inglês](https://www.youtube.com/channel/UC8c51tOe18ZdRMReEjI2XJg) |
+[Tecla SAP com Ulisses Carvalho](https://www.youtube.com/channel/UC17UIAl4Ipm7Qf4IBkmkjwQ) |
+[engVid: Learn English](https://www.youtube.com/user/engvidenglish) |
+[Rachel's English](https://www.youtube.com/user/rachelsenglish) |
+[English with Lucy](https://www.youtube.com/channel/UCz4tgANd4yy8Oe0iXCdSWfA) |
+
 
 
 ## Tradutores
