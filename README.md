@@ -25,6 +25,7 @@
 ## Canais no YouTube
  Título | 
 ------- | 
+[Cintia Sabino](https://www.youtube.com/channel/UCYLD2XEuOg-WfeqG78GfwZw)
 [Inglês na Ponta da Língua](https://www.youtube.com/channel/UCe5YeBiQwkxEMYhvHwfuinw) | 
 [English Brazil by Carina Fragozo](https://www.youtube.com/carinafragozo) |
 [Inglês Winner](https://www.youtube.com/user/eslwinner) |
