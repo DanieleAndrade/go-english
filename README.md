@@ -29,8 +29,8 @@
 [Inglês na Ponta da Língua](https://www.youtube.com/channel/UCe5YeBiQwkxEMYhvHwfuinw) | 
 [English Brazil by Carina Fragozo](https://www.youtube.com/carinafragozo) |
 [Inglês Winner](https://www.youtube.com/user/eslwinner) |
-[Mairo Vergara](https://www.youtube.com/user/MairoVergara) |
-[Mais Língua Concept](https://www.youtube.com/channel/UC0reHqVm28wbDrnk73kP0WA)|
+[Mairo Vergara](https://www.youtube.com/user/MairoVergara)|
+[Mais Língua Concept](https://www.youtube.com/channel/UC0reHqVm28wbDrnk73kP0WA) |
 [Tia do Inglês](https://www.youtube.com/channel/UC8c51tOe18ZdRMReEjI2XJg) |
 [Tecla SAP com Ulisses Carvalho](https://www.youtube.com/channel/UC17UIAl4Ipm7Qf4IBkmkjwQ) |
 [engVid: Learn English](https://www.youtube.com/user/engvidenglish) |
